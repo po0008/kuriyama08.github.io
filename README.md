@@ -1,0 +1,1 @@
+# kuriyama08.github.io
